@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Velma-Muhatia
-- 👀 I’m interested in Music
+- 👀 I’m interested in Music and Dance
 - 🌱 I’m currently learning how to code music(Engineer and Produce)
 - 💞️ I’m looking to collaborate on anything involving music.
 - 📫 How to reach me (muhatiavelma1@gmail.com, +254 791 670 287)
